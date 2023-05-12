@@ -6,3 +6,6 @@
 - 💞️ Gosto de jogar jogos 
 - 📫 Morro em Marmeleiro Paraná(BR)
 - 👍 atualmento tou no Github ![](https://img.shields.io/badge/GitHub-100000?style=for-the-badge&logo=github&logoColor=white)
+- estou no dia 11 do 5 de 2023 horario 21:44 da noite na penultima aula, comprei uma uma r3 rescentemente e estou muito grato a Deus.
+- tenho 15 anos e já ter essa conquyista me motiva muito.
+- 
